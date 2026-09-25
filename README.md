@@ -1,11 +1,6 @@
 🌈
-ㅤ. ݁ · Go sign my Ata !  ˚ ༘ㅤㅤㅤㅤ𓏲 ࣪˖ flw mainㅤ[@Twixxel-Lessgo](https://Twixxel-Lessgo) ࣪˚.⋆ ㅤㅤㅤㅤㅤ౿ 　int freely !ㅤ♡ㅤㅤ࿔ ˚ ㅤㅤㅤㅤ
-      Draw On Straw (⁠ ⁠◜⁠‿⁠◝⁠ ⁠)⁠♡
+ㅤ. ݁ · Sign Ata!  ˚ ༘ㅤㅤㅤㅤ𓏲 Draw On Straw! ࣪˚.⋆ ㅤㅤㅤㅤㅤ౿ 　° !ㅤ♡ㅤㅤ࿔ ˚ ㅤㅤㅤㅤ
+             (⁠ ⁠◜⁠‿⁠◝⁠ ⁠)⁠♡
 
-
-[Ata](https://twixxell.atabook.org)
- [Straw](https://spokeshere-twixxen.straw.page) 
- 
- [Pronouns.cc](https://pronouns.cc/@Twixxenn-Twixxel)  
- 
- [guns.lol](https://guns.lol/twixell)
+ ִֶָ. ..𓂃 ࣪ ִֶָ🌈་༘࿐  [新book](https://twixxell.atabook.org)
+ ִֶָ. ..𓂃 ࣪ ִֶָ⚡️་༘࿐    [Straw](https://spokeshere-twixxen.straw.page)  ִֶָ. ..𓂃 ࣪ ִֶָ🪽་༘࿐   [Prns](https://pronouns.cc/@Twixxenn-Twixxel) ִֶָ. ..𓂃 ࣪ ִֶָ♡ ་༘࿐    [guns.lol](https://guns.lol/twixell)  ִֶָ. ..𓂃 ࣪ ִֶָ·ꔫ ་༘࿐    [discord](https://discord.gg/twixxenn) ִֶָ. ..𓂃 ࣪ ִֶָ🪽་༘࿐
