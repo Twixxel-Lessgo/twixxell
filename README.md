@@ -3,7 +3,7 @@
              (⁠ ⁠◜⁠‿⁠◝⁠ ⁠)⁠♡
 
 
-![image alt]()
+![image alt](https://github.com/twixxell/twixxell/blob/67709a6ac53703f9818e9afe42d9129154e2fba3/%D1%82%D0%B2%D0%B8%D1%82%D1%82%D0%B5%D1%80%20_%20%40%20amiisev%20_%20spokeishere.jpg)
 
 
  ִֶָ. ..𓂃 ࣪ ִֶָ🌈་༘࿐  [新book](https://twixxell.atabook.org)
