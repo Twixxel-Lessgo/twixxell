@@ -6,5 +6,4 @@
 ![image alt](https://github.com/twixxell/twixxell/blob/67709a6ac53703f9818e9afe42d9129154e2fba3/%D1%82%D0%B2%D0%B8%D1%82%D1%82%D0%B5%D1%80%20_%20%40%20amiisev%20_%20spokeishere.jpg)
 
 
- ִֶָ. ..𓂃 ࣪ ִֶָ🌈་༘࿐  ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[新book](https://twixxell.atabook.org) ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ִֶָ. ..𓂃 ࣪ ִֶָ⚡️་༘࿐    [Straw](https://spokeshere-twixxen.straw.page) ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ִֶָ. ..𓂃 ࣪ ִֶָ🪽་༘࿐   ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[Prns](https://pronouns.cc/@Twixxenn-Twixxel) ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ִֶָ. ..𓂃 ࣪ ִֶָ♡ ་༘࿐   ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [guns.lol](https://guns.lol/twixell) ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ...𓂃 ࣪ ִֶָ·ꔫ ་༘࿐  ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  [discord](https://discord.gg/twixxenn) ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ִֶָ. ..𓂃 ࣪ ִֶָ🪽་༘࿐
+ ִֶָ. ..𓂃 ࣪ ִֶָ🌈་༘࿐ [新book](https://twixxell.atabook.org) ִֶָ. ..𓂃 ࣪ ִֶָ⚡️་༘࿐    [Straw](https://spokeshere-twixxen.straw.page)  ִֶָ. ..𓂃 ࣪ ִֶָ🪽་༘࿐ [Prns](https://pronouns.cc/@Twixxenn-Twixxel)  ִֶָ. ..𓂃 ࣪ ִֶָ♡ ་༘࿐  [guns.lol](https://guns.lol/twixell)  ...𓂃 ࣪ ִֶָ·ꔫ ་༘࿐  [discord](https://discord.gg/twixxenn)  ִֶָ. ..𓂃 ࣪ ִֶָ🪽་༘࿐
