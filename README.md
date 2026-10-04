@@ -1,6 +1,6 @@
-<img width="640" src="" alt="" align="right" width="600"/></p>
+![Friends!](https://img.shields.io/badge/Null-cf8b9d?style=flat&labelColour=e7728f)
 
-[![Null!](https://hits.sh/github.com/Twixxel-Lessgo.svg?style=plastic&label=(%5E%CF%89%5E)%20%E2%99%AA&extraCount=2000&color=2f3232&labelColor=00000)](https://hits.sh/github.com/Twixxel-Lessgo/)
+[![Hits](https://hits.sh/github.com/Chemicalshot.svg?style=plastic&label=Null%20Soldiers&extraCount=15000&color=f18fac&labelColor=d88391)](https://hits.sh/github.com/Chemicalshot/)
 
 
 
