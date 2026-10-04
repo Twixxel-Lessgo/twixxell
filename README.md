@@ -64,12 +64,20 @@ ${\color{#fffff}{\textsf smirks }} \color{#fffff}{\textsf{heh}} \color{#ffff
 <br/>
 <p align="center">${\textsf{\color{#fffff} text}}$ 
  
+
+</details>
+
+
+<br/>
+<p align="center">${\textsf{\color{#fffff} —}}$ 
+ 
 <details>
 
+ <summary> $${\color{#FFFFFF}Click \space to \space see \space oomfie's}$$</summary> 
 
 
 
- $${\color{#FFFFFF} text \space  text}$$  <sub>[Hi](LINK)</sub>
+ $${\color{#FFFFFF} text \space  text}$$  <sub>[]()</sub> <sub>[]() </sub>
 <br/>
 <br/>
 $${\color{#FFFFF} Text! \space text \space text}$$  <sub>Text or link here lol</sub>
